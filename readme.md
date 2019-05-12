@@ -1,7 +1,3 @@
 #Github
-Arquivo da aulas git para nubd
-f
-dsfdsfsdfs
-:wq
-fodasefodasefodasesfosae
-sua mae é do povo
+Arquivo da aulas git p
+da dinheiro pro cara
